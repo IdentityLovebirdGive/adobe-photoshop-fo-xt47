@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS rare Script: AI-assisted design & layer styles offers the most advanced Adobe Photoshop for macOS script, with AI-assisted design and layer styles. Ideal
 
 
 
